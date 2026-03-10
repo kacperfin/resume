@@ -1,0 +1,1 @@
+[![View PDF](./Kacper%20Aleksander%20Resume.png)](./Kacper%20Aleksander%20Resume.pdf)
